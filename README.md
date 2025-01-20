@@ -1,2 +1,2 @@
 # rafly-git
-praktik github XIIplg1
+praktik github XII PPLGQL¹ (udah jago bjir😹)
